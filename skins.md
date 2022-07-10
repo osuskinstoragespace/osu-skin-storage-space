@@ -20,7 +20,7 @@ https://www.youtube.com/watch?v=ngt71o64TOQ
 good for anything but especially fun for dt  
 this cursor is mint flavored and is very tasty 10/10 from grodom ramsye    
 hitcircles changed, hitcircle font changed, followpoints changed, pause music muted, applause and failsound changed, sectionpass and sectionfail changed  
-shoutout morgn
+shoutout morgn, gotta be one of my favorite osu cheaters
 ![](https://cdn.discordapp.com/attachments/250036064973094912/995622170447327252/screenshot119.jpg)
 
 # [osu!redline](https://casey.s-ul.eu/a8AjrDVe)
@@ -29,7 +29,7 @@ https://www.youtube.com/watch?v=eRy-sjEaCmA
 good for whatever skins with no cursortrail are good for  
 the sliderborders are dimmed so that i can play dt with it but if you're not lame like me you should undim them  
 also sectionpass and sectionfail changed, miss sound reset to default cause oreru was distracting  
-shoutout pinguefy
+shoutout pinguefy <3
 ![](https://cdn.discordapp.com/attachments/250036064973094912/995628896429031444/unknown.png)
 
 # [cinnamoroll](https://casey.s-ul.eu/7xwz2Oo6)
