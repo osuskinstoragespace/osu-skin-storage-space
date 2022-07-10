@@ -15,7 +15,7 @@ shoutout ninerik
 ![](https://cdn.discordapp.com/attachments/250036064973094912/995626415166869534/screenshot122.jpg)
 
 # [last resort](https://casey.s-ul.eu/vHXhgp6x)
-an edit of [an edit of yugen](https://github.com/venomthor2/morgan-osu-skins/blob/master/README.md#:~:text=winter%20diamond-,last%20resort,-hisui%20no%20machi)  
+an edit of an edit of yugen (https://github.com/venomthor2/morgan-osu-skins/blob/master/README.md#:~:text=winter%20diamond-,last%20resort,-hisui%20no%20machi)  
 https://www.youtube.com/watch?v=ngt71o64TOQ  
 good for anything but especially fun for dt  
 this cursor is mint flavored and is very tasty 10/10 from grodom ramsye    
