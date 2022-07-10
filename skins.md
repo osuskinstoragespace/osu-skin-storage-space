@@ -19,7 +19,7 @@ an edit of an edit of yugen
 https://www.youtube.com/watch?v=ngt71o64TOQ  
 good for anything but especially fun for dt  
 this cursor is mint flavored and is very tasty 10/10 from grodom ramsye    
-hitcircles changed, hitcircle font changed, followpoints changed, pause music muted, applause and failsound changed, sectionpass and sectionfail changed  
+hitcircles changed, hitcircle font changed, followpoints changed, pause music muted, applause and failsound changed, sectionpass and sectionfail changed, spinner changed   
 shoutout morgn, gotta be one of my favorite osu cheaters
 ![](https://cdn.discordapp.com/attachments/250036064973094912/995622170447327252/screenshot119.jpg)
 
@@ -36,6 +36,7 @@ shoutout pinguefy <3
 cinnamoroll is cool  
 healthbar was removed cause it was getting in the way of my SHREDDING  
 replaced sectionfail sound with vine thud lol  
+also spinner changed  
 shoutout morgn or fyre/moya or both idk 
 ![](https://cdn.discordapp.com/attachments/250036064973094912/995631920232808569/screenshot117.jpg)
 
