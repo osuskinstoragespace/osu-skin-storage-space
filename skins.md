@@ -49,7 +49,7 @@ shoutout doomsday
 
 # [Cookiezi 22.x](https://casey.s-ul.eu/XovjoL7U)
 back when i tried to recreate the whitecat cookiezi skin before knowing that there was a download link for it   
-edited out some of the anime and changed the cursor  
+edited out some of the anime and changed the cursor, sectionpass and sectionfail images replaced with photos of kermit the frog  
 ~~shoutout whitecat~~ blame seouless
 ![](https://cdn.discordapp.com/attachments/250036064973094912/995637495742087189/screenshot110.jpg) 
 
