@@ -24,10 +24,11 @@ shoutout morgn, gotta be one of my favorite osu cheaters
 ![](https://cdn.discordapp.com/attachments/250036064973094912/995622170447327252/screenshot119.jpg)
 
 # [#azer8tekkito](https://casey.s-ul.eu/ZHmcz2Ky)
-aricin skin with tekkito combo colors
-https://twitter.com/enri623/status/1550912862436343808
-sectionfail changed to **AUGHHHHHH**
+aricin skin with tekkito combo colors  
+https://twitter.com/enri623/status/1550912862436343808  
+sectionfail changed to **AUGHHHHHH**  
 shoutout enri
+![](https://cdn.discordapp.com/attachments/250036064973094912/1002123552021020686/screenshot136.png)
 
 # [osu!redline](https://casey.s-ul.eu/a8AjrDVe)
 boomer skin  
