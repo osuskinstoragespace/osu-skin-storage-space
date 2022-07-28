@@ -23,6 +23,12 @@ hitcircles changed, hitcircle font changed, followpoints changed, pause music mu
 shoutout morgn, gotta be one of my favorite osu cheaters
 ![](https://cdn.discordapp.com/attachments/250036064973094912/995622170447327252/screenshot119.jpg)
 
+# [#azer8tekkito](https://casey.s-ul.eu/ZHmcz2Ky)
+aricin skin with tekkito combo colors
+https://twitter.com/enri623/status/1550912862436343808
+sectionfail changed to **AUGHHHHHH**
+shoutout enri
+
 # [osu!redline](https://casey.s-ul.eu/a8AjrDVe)
 boomer skin  
 https://www.youtube.com/watch?v=eRy-sjEaCmA  
