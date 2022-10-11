@@ -34,8 +34,7 @@ shoutout enri
 ![](https://cdn.discordapp.com/attachments/250036064973094912/1002123552021020686/screenshot136.png)
 
 # [last resort](https://casey.s-ul.eu/vHXhgp6x)
-an edit of an edit of yugen
-https://www.youtube.com/watch?v=ngt71o64TOQ  
+[an edit of an edit of yugen](https://www.youtube.com/watch?v=ngt71o64TOQ)  
 good for anything but especially fun for dt  
 this cursor is mint flavored and is very tasty 10/10 from grodom ramsye    
 hitcircles changed, hitcircle font changed, followpoints changed, pause music muted, applause and failsound changed, sectionpass and sectionfail changed, spinner changed   
