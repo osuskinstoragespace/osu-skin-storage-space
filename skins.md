@@ -23,7 +23,7 @@ shoutout ninerik
 # [- 『EternuMonochromia』 - [InstaFade DT]](https://casey.s-ul.eu/5v5mAcHC)
 the only other dt skin that i have ever enjoyed using  
 sliderborders very dim use gamma ok  
-shoutout ~~eternum~~ redo, extremely talented graphic designer https://twitter.com/R3do_
+shoutout ~~eternum~~ [redo](https://twitter.com/R3do_), extremely talented graphic designer
 ![](https://cdn.discordapp.com/attachments/250036064973094912/1029254235268857887/screenshot157.png)
 
 # [#azer8tekkito](https://casey.s-ul.eu/ZHmcz2Ky)
